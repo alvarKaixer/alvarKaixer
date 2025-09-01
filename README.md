@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **alvarkaixereoa@gmail.com**
 
-- ⚡ Fun fact **67**
+- "Even a broken clock is right twice a day"
 
 <p align="left">
 
